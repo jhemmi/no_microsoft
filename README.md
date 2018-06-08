@@ -1,1 +1,1 @@
-# no_microsoft
+No Microsoft, we don't need you !
